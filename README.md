@@ -1,1 +1,1 @@
-# My-University-Assignments
+# My University Assignments
